@@ -1,4 +1,4 @@
-I am originally from Slovakia but have been living in Ireland for 17 years.
+I am originally from Slovakia but have been living in Ireland since I was 10 years old.
 
 I'm a big animal lover, with the exception of spiders 🙅‍♀️🕷️. I have two guinea pigs living at home, Pickles and Pepper, that I love to bits. 🐹
 
